@@ -1,6 +1,6 @@
 # Rahwa kinfe 
 ## _Flight Attendant_
-<img src="https://i.ibb.co/hRxByhJ/xcpl-e86u-220112.jpg" width=200 hight=200>
+
 <img src="https://img.freepik.com/free-photo/portrait-young-woman-flight-attendant-running-with-suitcase-isolated-white-background_155003-45037.jpg" width=200 hight=200>
 
 my name is rahwa and it means (love) which really i am. I am from north part of Ethiopian
