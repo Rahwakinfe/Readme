@@ -30,4 +30,4 @@ born and reasid there. i was **flight attendant** for almost 5 years ith ethiopi
 > helping each other
 > making fun of each other
 ##### well that is enough!
-![we have enough now] <a href="https://imgbb.com/"><img src="https://i.ibb.co/p3Q9qbT/giphy.gif" alt="giphy" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'>anonymous image host</a><br />
+![f] <a href="https://imgbb.com/"><img src="https://i.ibb.co/p3Q9qbT/giphy.gif" alt="giphy" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'>anonymous image host</a><br />
