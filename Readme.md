@@ -20,9 +20,9 @@ born and reasid there. i was **flight attendant** for almost 5 years ith ethiopi
 - to creat some amazing app which sometimes i wish there was.
 - 
 ###  my biggest fear
-- death 
+1,death 
 
-- losing my family  😰 💔 
+2, losing my family  😰 💔 
 #### things i look forward
 >  to see and to hear the voice of my family again.🤲
 #### Things i value as a team
